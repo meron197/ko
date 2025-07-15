@@ -1,1 +1,4 @@
 # ko
+kjjikm
+njnkm
+njiknkm
